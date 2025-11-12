@@ -9,3 +9,10 @@ Avec un petit saut maladroit, il se mit à glisser à côté de moi, et un souri
 « Excuse-moi, tu as vu mon skateboard ? » demanda Ginette en zigzagant.
 
 Marcel cligna des yeux : c’était probablement le début d’une amitié complètement chaotique.
+
+
+Ginette s'arrêta brusquement, ses roulettes crissant sur le sol du salon, et renversa une pile de livres sur l'astrophysique.
+
+Marcel, imperturbable, ajusta son nœud papillon à carreaux et s'éclaircit la gorge pour répondre.
+
+« Non, mais j'ai une boussole qui pointe vers une boîte de thon. Ça aide ? »
