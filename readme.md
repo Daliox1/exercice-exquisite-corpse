@@ -16,3 +16,9 @@ Ginette s'arrêta brusquement, ses roulettes crissant sur le sol du salon, et re
 Marcel, imperturbable, ajusta son nœud papillon à carreaux et s'éclaircit la gorge pour répondre.
 
 « Non, mais j'ai une boussole qui pointe vers une boîte de thon. Ça aide ? »
+
+Ginette éclata de rire, faisant tourner ses roulettes sur elles-mêmes, et lança : « Parfait, on part à l’aventure ! »
+
+Marcel sauta sur ses pattes arrière, prêt à guider l’expédition improbable à travers le salon jonché de livres.
+
+Le petit pingouin, curieux, glissa entre les jambes, comme pour dire : « Je vous accompagne ! »
