@@ -18,3 +18,5 @@ Ginette s'arrêta brusquement, ses roulettes crissant sur le sol du salon, et re
 Marcel, imperturbable, ajusta son nœud papillon à carreaux et s'éclaircit la gorge pour répondre.
 
 « Non, mais j'ai une boussole qui pointe vers une boîte de thon. Ça aide ? »
+
+Ginette ne comprit pas où voulait en venir le capitaine, cette boussole est déboussolée. Elle ne pointe jamais le nord.
