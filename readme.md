@@ -33,3 +33,5 @@ Ginette éclata de rire, faisant tourner ses roulettes sur elles-mêmes, et lan�
 Marcel sauta sur ses pattes arrière, prêt à guider l’expédition improbable à travers le salon jonché de livres.
 
 Le petit pingouin, curieux, glissa entre les jambes, comme pour dire : « Je vous accompagne ! »
+
+<!-- Tout est parfait -->
