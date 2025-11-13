@@ -1,6 +1,8 @@
-
-
 # La Rencontre
+Le vent polaire sifflait doucement entre les falaises gelées, couvrant le paysage d’une lumière bleutée.
+Au loin, les craquements de la banquise rythmaient chaque pas.
+Un calme étrange régnait, comme si le monde retenait son souffle.
+
 Alors que je marchais sur la glace, un petit pingouin s'approcha timidement.  
 Il me regarda avec ses yeux ronds et curieux, comme s'il voulait communiquer.  
 Avec un petit saut maladroit, il se mit à glisser à côté de moi, et un sourire se dessina sur mon visage.  
