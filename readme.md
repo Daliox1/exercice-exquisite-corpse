@@ -12,7 +12,6 @@ Avec un petit saut maladroit, il se mit à glisser à côté de moi, et un souri
 
 Marcel cligna des yeux : c’était probablement le début d’une amitié complètement chaotique.
 
-
 Ginette s'arrêta brusquement, ses roulettes crissant sur le sol du salon, et renversa une pile de livres sur l'astrophysique.
 
 Marcel, imperturbable, ajusta son nœud papillon à carreaux et s'éclaircit la gorge pour répondre.
@@ -21,7 +20,6 @@ Marcel, imperturbable, ajusta son nœud papillon à carreaux et s'éclaircit la 
 
 Ginette ne comprit pas où voulait en venir le capitaine, cette boussole est déboussolée. Elle ne pointe jamais le nord.
 
-
 Elle ramassa tant bien que mal un des livres tombés. L’image d’un trou noir en couverture semblait l’observer avec un air de réprobation.
 
 « Une boîte de thon ne va pas m’emmener bien loin, tu sais… » grommela-t-elle avant de remettre ses rollers en position d’attaque.
@@ -29,3 +27,9 @@ Elle ramassa tant bien que mal un des livres tombés. L’image d’un trou noir
 Marcel haussa un sourcil, puis tourna délicatement sa boussole. L’aiguille vibra, hésita, puis se fixa soudain vers la porte d’entrée.
 
 À cet instant, le petit pingouin glissa dans le salon comme une fusée, fit un tour complet sur lui-même et s’arrêta devant eux, tout essoufflé.
+
+Ginette éclata de rire, faisant tourner ses roulettes sur elles-mêmes, et lança : « Parfait, on part à l’aventure ! »
+
+Marcel sauta sur ses pattes arrière, prêt à guider l’expédition improbable à travers le salon jonché de livres.
+
+Le petit pingouin, curieux, glissa entre les jambes, comme pour dire : « Je vous accompagne ! »
