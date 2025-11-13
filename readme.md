@@ -20,3 +20,12 @@ Marcel, imperturbable, ajusta son nœud papillon à carreaux et s'éclaircit la 
 « Non, mais j'ai une boussole qui pointe vers une boîte de thon. Ça aide ? »
 
 Ginette ne comprit pas où voulait en venir le capitaine, cette boussole est déboussolée. Elle ne pointe jamais le nord.
+
+
+Elle ramassa tant bien que mal un des livres tombés. L’image d’un trou noir en couverture semblait l’observer avec un air de réprobation.
+
+« Une boîte de thon ne va pas m’emmener bien loin, tu sais… » grommela-t-elle avant de remettre ses rollers en position d’attaque.
+
+Marcel haussa un sourcil, puis tourna délicatement sa boussole. L’aiguille vibra, hésita, puis se fixa soudain vers la porte d’entrée.
+
+À cet instant, le petit pingouin glissa dans le salon comme une fusée, fit un tour complet sur lui-même et s’arrêta devant eux, tout essoufflé.
